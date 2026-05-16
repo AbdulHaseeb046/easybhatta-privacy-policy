@@ -1,0 +1,1 @@
+# easybhatta-privacy-policy
